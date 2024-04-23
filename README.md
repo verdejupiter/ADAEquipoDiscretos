@@ -1,3 +1,3 @@
 # ADAEquipoDiscretos
 
-Hola buenas noches
+Hola BUENAS noches
